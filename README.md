@@ -1,4 +1,4 @@
 ### Hi, I'm Jay. 👋
 *he/him*
 
-I make stuff sometimes. I think it can be pretty cool sometimes.
+I make stuff sometimes, and it actually works on occasion.
