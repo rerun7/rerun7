@@ -1,4 +1,4 @@
-### Hi, I'm Jai. 👋
+### Hi, I'm Jay. 👋
 *he/him*
 
-I make the loud noise. I do the program. I build the robot. I do the thing!
+I make stuff sometimes. I think it can be pretty cool sometimes.
