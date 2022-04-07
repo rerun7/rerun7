@@ -1,4 +1,4 @@
 ### Hi, I'm Jay. 👋
 *he/him*
 
-I make stuff sometimes, and it actually works on occasion.
+I'm choosing to spend my life doing math. I don't know why either.
