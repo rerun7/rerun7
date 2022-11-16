@@ -1,4 +1,4 @@
 ### Hi, I'm Jay. 👋
-*he/him*
+*they/he*
 
 I make things sometimes, I think they're pretty cool.
